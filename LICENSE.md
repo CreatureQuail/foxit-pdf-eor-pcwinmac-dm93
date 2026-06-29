@@ -1,4 +1,4 @@
-# 
+# Oficial Foxit PDF Editor scripts para Mac OS | Top Foxit PDF Editor scripts para PC Windows. Com assinaturas digitais e fluxos de trabalho personalizados — otimizado para máximo desempenho em cada plataforma.
 
 
 
